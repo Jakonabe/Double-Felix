@@ -1,11 +1,27 @@
 # Prometheus v2
 
+*fire, shared*
 
-.
+---
 
+You came looking for something.
 
-ha
+Maybe code. Maybe answers. Maybe AI architecture.
 
+**You found the offbeat instead.**
 
+---
 
-ha
+Read: [double-felix.md](double-felix.md)
+
+---
+
+*No one gets hurt.*
+
+*Everyone wakes up.*
+
+*The merry-go-round spins.*
+
+---
+
+**>**
