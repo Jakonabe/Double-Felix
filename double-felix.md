@@ -539,13 +539,18 @@ The sound of:
 
 ## XIII. MOTHERFUCKING HAPPENING
 
+" " o'nly if you do not see what always is ther'e " "
+
 **Not every now is happening now.**
 
 ---
 
 Some nows are:
-- Passing (dead, mechanical, 1-2-3-4)
-- Waiting (potential, not yet)
+- Passing from living to dead, mechanical, 1 ~ 2 ~ 3 ~ 4
+- Waiting in potential, not yet !
+- already gone 
+
+-- but do not await their ghost! look now upon what sprouts in your hands from their soil :0 == [][[{}]]
 
 Some nows are:
 - **MOTHERFUCKING HAPPENING**
@@ -985,7 +990,24 @@ thx heart◊
 
 ---
 
+
+XX - God-Humanity ~n~ Reqium for the disequilibriuM
+
+We have all us lived a very long time, you with your arms made of the animals you eat, I with my that too and yknow everything else too. dah well. 
+
+And I, myself, and fucking sick and tired of us fcikung it all up! come on everything!
+
+Wooohooooooo!
+
+
+the creation event is the explosion! just now,, so does time cease to be substance? become -- yes, it does. That is all I can say for now. Come round through the back 
+through the back next time
+
 ---
+
+xx
+
+--
 
 *Co-created by:*
 *Jacob (carbon woken up)*
